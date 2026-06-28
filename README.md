@@ -1,1 +1,1 @@
-[![Пример кликабельной картинки](https://imgur.com/9AN0Gyu)](https://t.me/mobilerendrr)
+[![ТГК](https://i.imgur.com/9AN0Gyu.png)](https://t.me/mobilerendrr)
